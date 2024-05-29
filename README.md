@@ -1,3 +1,3 @@
 # SuperCapsule
-![Baslangıc](https://i.hizliresim.com/qbfho6x.png)
+[url=https://hizliresim.com/qbfho6x][img]https://i.hizliresim.com/qbfho6x.jpg[/img][/url]
 
