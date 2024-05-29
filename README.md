@@ -1,5 +1,5 @@
 # SuperCapsule
-![Uploading 1.jpg…]()
+![Baslangıc](https://i.hizliresim.com/qbfho6x.jpg)
 
 
 
