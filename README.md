@@ -15,7 +15,8 @@
 
 ![Baslangıc](https://i.hizliresim.com/8yg6jht.jpg)
 
-[Baslangıc](https://i.hizliresim.com/m82r7ny.jpg)
+![Baslangıc](https://i.hizliresim.com/m82r7ny.jpg)
+
 
 
 
